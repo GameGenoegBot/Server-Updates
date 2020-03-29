@@ -1,3 +1,3 @@
 Update!!!
 Bot Added 
-Creadted By Stan_Otermans
+Created By Stan_Otermans
